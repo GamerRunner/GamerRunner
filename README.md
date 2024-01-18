@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GamerRunner
-- 👀 I’m the ce=reator of Running 25.
+- 👀 I’m the creator of Running 25.
 - 🌱 I’m currently learning Game Dev ...
 - 💞️ I’m looking to collaborate on on this hue gaming project in the world or running, Track and field, Cross Country and more.
 - 📫 How to reach me Zeph.alvarado16@gmail.com
